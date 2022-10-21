@@ -1,2 +1,1 @@
-# NATE_OR_NEVER
-BETTER
+Making some progress. I found them. Its INVISIBLE WIRES!!!
